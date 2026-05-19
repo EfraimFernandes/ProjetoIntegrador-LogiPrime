@@ -7,7 +7,7 @@
 - Denis Cavalini dos Santos Junior – RA: 3023104223  
 - Efraim Quintunda Fernandes (Líder) – RA: 323103429  
 - Erick Adriano de Oliveira Silva – RA: 3025107900  
-- Gabriell Silva França Lau – RA: 3025200966  
+- Gabriell Silva França Lau - RA: 3025200966
 - Giselli da Silva Mesquita – RA: 3025102489  
 - Joyce Camelo de Souza – RA: 3023102570  
 - Lucas Willian Oliveira da Silva – RA: 3023200898  
